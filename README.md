@@ -1,1 +1,0 @@
-# serkandogan.github.io
